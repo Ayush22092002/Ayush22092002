@@ -1,6 +1,6 @@
 <h1 align="center">Hi 👋, I'm Ayush Aditya</h1>
 <h3 align="center">An AIML engineer, who is skilled in programming and development . I am great learner and a hardworking candidate .I am a tech enthusiast kind of person from India.</h3>
-<img align="right" alt="Coding" width="400" src="https://tenor.com/search/coding-gifs">
+<img align="right" alt="Coding" width="400" src="https://images.app.goo.gl/763VQAgjDPjhdPAq7">
 
 
 <h3 align="left">Connect with me:</h3>
