@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **(+91)82713017322|ayushaditya2949@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1E-ikHpoqhEy346hymk_BhbFNuBDB4bTy/view?usp=drive_link](https://drive.google.com/file/d/1E-ikHpoqhEy346hymk_BhbFNuBDB4bTy/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1j1tRziUuexnbSXNQEwExTfvkGpm-qmwg/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
